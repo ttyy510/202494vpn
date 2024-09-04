@@ -52,6 +52,7 @@
 
 ![2024-09-03 10 01 16_副本](https://github.com/user-attachments/assets/8200cb38-8918-479a-bc2e-92025e25f2a7)
 
+### [DOVE网络加速器官网地址--点击直达](https://dove8.cc/a.php?alavBTtF8UB)
 
 #### 为什么不推荐永久免费机场或一元 五毛机场梯子？
 
